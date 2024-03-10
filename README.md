@@ -1,2 +1,0 @@
-# SWE_SWS101
-# SWE_SWS101
